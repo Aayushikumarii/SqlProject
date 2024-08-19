@@ -10,11 +10,8 @@ Glimpse of the Project-
 ![WhatsApp Image 2024-08-19 at 21 44 25_561be425](https://github.com/user-attachments/assets/60126dac-a3b6-4a0e-b562-0e0d8c78eb1a)
 ![WhatsApp Image 2024-08-19 at 21 44 25_271566ca](https://github.com/user-attachments/assets/ef7d3e6a-a![WhatsApp Image 2024-08-19 at 21 44 25_561be425](https://github.com/user-attachments/![WhatsApp Image 2024-08-19 at 21 44 26_57fd2b7c](https://github.com/user-attachments/assets/85947360-6542-4d9a-b4f9-976cb3c1c155)
 assets/423ff2bf-c6e9-42a2-8686-5dcda90894b6)
-![Uploading WhatsApp Image 2![WhatsApp Image 2024-08-19 at 21 44 25_271566ca](https://github.com/user-attachments/assets/719e762a-4a8a-4275-b843-bfc2118d5a73)
-024-08-19 at 21.44.25_561be425.jpg![WhatsApp Image 2024-08-19 at 21 44 26_4b44ec55](https://github.com/user-attachments/assets/3c94f87b-d2b9-4f27-b139-5a34bc482a94)
+![WhatsApp Image 2024-08-19 at 21 44 26_4b44ec55](https://github.com/user-attachments/assets/3c94f87b-d2b9-4f27-b139-5a34bc482a94)
 …]()
 ![WhatsApp Image 2024-08-19 at 21 44 25_b3abb10b](https://github.com/user-attachments/assets/f6ac5c51-49c2-40d3-a03f-6dcfc59c7a64)
 844-419f-81eb-263cb4bae657)
-![Uploading WhatsApp Image 2!![WhatsApp Image 2024-08-19 at 21 44 25_b3abb10b](https://github.com/user-attachments/assets/b6b7c955-5aa3-493a-99f3-a262219c2cbd)
-[Uploading WhatsApp Image 2024-08-19 at 21.44.25_b3abb10b.jpg…]()
-024-08-19 at 21.44.25_271566ca.jpg…]()
+
